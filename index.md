@@ -1,3 +1,3 @@
-#Trying again
+#Adventure is out there!
 
-Would like to have a heading.
+Go seek the heights, pursue life's adventures everyday.
